@@ -1,0 +1,1 @@
+# Nela-Slovakova-je-hrozna-cubka-ma-TOP-kozy-a-oholenou-mindu
